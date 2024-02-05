@@ -15,3 +15,5 @@ Butler, G. (1974) Arnold Schwarzenegger from Pumping Iron.
 Marathon Handbook. (n.d.). Are Women More Flexible Than Men?. [image] Available at: https://marathonhandbook.com/are-women-more-flexible-than-men/
 
 Pinterest. (n.d.). [image] Available at: https://in.pinterest.com/pin/362258363791537012/
+
+By Cornelius, Jacob, Jing Rong, Jaya
