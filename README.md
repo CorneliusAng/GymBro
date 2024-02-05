@@ -7,3 +7,6 @@ TechFest 2024 Hackathon Team 6 1A
 
 # Youtube link: [!Watch the video](https://www.youtube.com/watch?v=ZbZSe6N_BXs)
 # Website link: [GymBro.sg](https://nurselink.sg)
+
+References:
+Butler, G. (1974) Arnold Schwarzenegger from Pumping Iron. [photograph] Available at: [URL where the photograph was accessed] (Accessed: [Date]).
