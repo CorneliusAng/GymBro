@@ -10,7 +10,7 @@ TechFest 2024 Hackathon Team 6 1A
 
 References:
 
-Butler, G. (1974) Arnold Schwarzenegger from Pumping Iron. [photograph] Available at: [URL where the photograph was accessed]
+Butler, G. (1974) Arnold Schwarzenegger from Pumping Iron.
 
 Marathon Handbook. (n.d.). Are Women More Flexible Than Men?. [image] Available at: https://marathonhandbook.com/are-women-more-flexible-than-men/
 
